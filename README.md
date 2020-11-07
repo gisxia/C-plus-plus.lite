@@ -1,2 +1,2 @@
-## Fighting for USTC
+### Fighting for USTC
 
